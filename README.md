@@ -123,9 +123,6 @@ Feito com **❤️** e café por **Laura**.
 
 ## 🔗 **Links Importantes** 📎
 
-- [GitHub - Repositório Oficial](https://github.com/seu-usuario/cafénolar)  
-- [Demo - Veja ao Vivo](#)
-
 ---
 
 Agora, é só preparar um café, relaxar e começar a explorar as receitas maravilhosas do **Café no Lar**! ☕✨
