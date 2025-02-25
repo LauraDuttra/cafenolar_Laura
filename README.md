@@ -121,10 +121,6 @@ Feito com **❤️** e café por **Laura**.
 
 ---
 
-## 🔗 **Links Importantes** 📎
-
----
-
 Agora, é só preparar um café, relaxar e começar a explorar as receitas maravilhosas do **Café no Lar**! ☕✨
 
 ---
